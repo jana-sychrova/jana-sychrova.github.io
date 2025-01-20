@@ -1,4 +1,4 @@
-# Hello, my name is Janine
+# Hello, my name is Jana
 
 ## About Me  
 I am an undergraduate student at Hokkaido University. I enjoy studying the Japanese language, its history and its modern use. However, my primary focus is on Japanese society, having recently finished a project study about marriage-hunting culture in Japan. I am generally interested in various causes of the population decline and the wider societal implications.
